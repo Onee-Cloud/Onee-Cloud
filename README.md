@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me:
 - 1. E-mail: denbut2002@gmail.com
-- 2. Telegram^ @Onichan3
+- 2. Telegram^ @t0yv0
 
 <!---
 Onee-Cloud/Onee-Cloud is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
